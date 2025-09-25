@@ -1,0 +1,1 @@
+Health workers in Kenya face limited access to mental health services, which compromises their well-being, decision-making, and quality of patient care. Mindcare offers the solution by creating easy access to mental health services and support, just a click away.
